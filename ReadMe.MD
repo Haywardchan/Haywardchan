@@ -1,0 +1,4 @@
+- 👋 Hi, I am Hayward
+- 👀 I'm now studying comp in UST
+- 🌱 Trying to be a more useful person
+- 💞️ and get away from pathetic life
